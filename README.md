@@ -4,10 +4,10 @@
 
 A few things I've always wanted to do ->
 
-Train My own AI models ![https://ben10.fandom.com/wiki/Albedo] , Work for a FAANG company ![Owlman] , Meet Elon Musk  ![https://dc.fandom.com/wiki/Bizarro]
+[Train My own AI models](https://ben10.fandom.com/wiki/Albedo) , [Work for a FAANG company](Owlman) , [Meet Elon Musk](https://dc.fandom.com/wiki/Bizarro)
 
 My socials ->
 
-Instagram ![https://dragonball.fandom.com/wiki/Goku_Black] , Twitter , Snapchat
+[Instagram](https://dragonball.fandom.com/wiki/Goku_Black) , Twitter , Snapchat
 
 What is death?
