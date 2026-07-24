@@ -1,11 +1,13 @@
+##
 <img width="1584" height="396" alt="githubbanner" src="https://github.com/user-attachments/assets/539b20eb-efa0-40b8-adb2-0c4016f954cf" />
+##
 
-A few things I've tried to do ->
+A few things I've always wanted to do ->
 
-Drawing , Music , Writing
+Train My own AI models ![https://ben10.fandom.com/wiki/Albedo] , Work for a FAANG company ![Owlman] , Meet Elon Musk  ![https://dc.fandom.com/wiki/Bizarro]
 
-You can also find me on these ->
+My socials ->
 
-Letterboxd , MyAnimeList , TV Time
+Instagram ![https://dragonball.fandom.com/wiki/Goku_Black] , Twitter , Snapchat
 
-What is life?
+What is death?
